@@ -1,2 +1,0 @@
-# manauspet.github.io
-Website
